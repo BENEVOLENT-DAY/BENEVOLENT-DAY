@@ -1,4 +1,4 @@
-- hi im velvian
+- hi im velvian, bene or valentine
 - dissocative disorder, c-ptsd & autism
 - 9/10 im with my husband mika
 - i have a boyfriend (if u couldnt guess its mika) who makes me very happy
