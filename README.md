@@ -1,5 +1,5 @@
 
-- hi im velvian or chance
+- hi im velvian or chance , she/they im a woman
 - dissocative disorder, c-ptsd & gad
 - 9/10 im with my husband mika
 - i have a husband (if u couldnt guess its mika) who makes me very happy
