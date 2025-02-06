@@ -2,7 +2,7 @@
 - hi im velvian or chance
 - dissocative disorder, c-ptsd & gad
 - 9/10 im with my husband mika
-- i have a boyfriend (if u couldnt guess its mika) who makes me very happy
+- i have a husband (if u couldnt guess its mika) who makes me very happy
 
 <!---
 BENEVOLENT-DAY/BENEVOLENT-DAY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
