@@ -1,8 +1,9 @@
 
-- hi im velvian or chance , she/they im a woman
-- dissocative disorder, c-ptsd & gad
-- 9/10 im with my husband mika
-- i have a husband (if u couldnt guess its mika) who makes me very happy
+- velvian , she/they
+- dissocative disorder & gad
+- im an ambivert 
+- 9/10 im with my husband mafi
+- i have a husband (if u couldnt guess its mafi) 
 
 <!---
 BENEVOLENT-DAY/BENEVOLENT-DAY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
