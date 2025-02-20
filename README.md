@@ -1,6 +1,6 @@
 
   - velvian she/they
-  - social introvery
+  - social introvert
   - 9/10 im with huzz mafi
   - collect my pages for more
 
