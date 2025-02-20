@@ -1,9 +1,8 @@
 
   - velvian she/they
-  - dissocative disorder & gad
-  - ambivert 
-  - 9/10 im with my husband mafi
-  - collect my pages to find out more
+  - social introvery
+  - 9/10 im with huzz mafi
+  - collect my pages for more
 
 <!---
 BENEVOLENT-DAY/BENEVOLENT-DAY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
